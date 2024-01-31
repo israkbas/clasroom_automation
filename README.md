@@ -1,0 +1,6 @@
+![hqdefault](https://github.com/israkbas/clasroom_automation/assets/102908756/b2a1bdce-e4b2-4bf5-ba15-3276fddf6886)
+![procedure 1](https://github.com/israkbas/clasroom_automation/assets/102908756/8e9fa580-d666-467e-a8f6-681d61c024f5)
+![1](https://github.com/israkbas/clasroom_automation/assets/102908756/d504b621-ad30-4546-abc4-ddc03045ccbc)
+![dkcmds](https://github.com/israkbas/clasroom_automation/assets/102908756/30e188e7-6d35-42d1-a7a6-278544777351)
+![procedure2 ](https://github.com/israkbas/clasroom_automation/assets/102908756/c76c3f7a-3da0-4b28-81d4-28e89a7e1352)
+![fonk1](https://github.com/israkbas/clasroom_automation/assets/102908756/b9e697ef-a4e0-4be3-b73d-4e13f5c920b3)
